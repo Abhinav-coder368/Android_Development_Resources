@@ -29,6 +29,7 @@
    - [100GB](https://www.youtube.com/watch?v=yxvngNgcrsE&t=1173s)
    - [100GB](https://www.youtube.com/watch?v=z4L79vAMrOQ)
    - [Ishan Sharma](https://www.youtube.com/watch?v=RCIXSWavvj8)
+   - [Master Coding](https://www.youtube.com/watch?v=qCJxBvvULDk)
 <br><br>
 
 
